@@ -2,6 +2,6 @@
 
 ## 📫 How to reach me
 
-- Email: [saikoushikraodugyalasde@gmail.com](mailto:saikoushikraodugyalasde@gmail.com)
+- Email: [saikoushikml@gmail.com](mailto:saikoushikml@gmail.com)
 - Website: [dugyalakoushik.github.io](https://github.com/dugyalakoushik)
 - LinkedIn: [Sai Koushik Rao Dugyala](https://www.linkedin.com/in/saikoushikraodugyala/)
